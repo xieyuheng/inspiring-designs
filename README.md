@@ -54,3 +54,8 @@ Casarini, Willi Sandforth, 1994.
 ![](constructivism/1915-dance-an-objectless-composition--alexander-rodchenko.jpg)
 
 Dance. An Objectless Composition, Alexander Rodchenko, 1915.
+
+
+![](constructivism/1915-portrait-of-a-philosopher--lyubov-popova.jpg)
+
+Portrait of a Philosopher, Lyubov Popova, 1915.
