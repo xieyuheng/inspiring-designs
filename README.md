@@ -49,3 +49,8 @@ Deep Cross, Willi Sandforth, 2012.
 ![](constructivism/1994-casarini--willi-sandforth.jpg)
 
 Casarini, Willi Sandforth, 1994.
+
+
+![](constructivism/1915-dance-an-objectless-composition--alexander-rodchenko.jpg)
+
+Dance. An Objectless Composition, Alexander Rodchenko, 1915.
