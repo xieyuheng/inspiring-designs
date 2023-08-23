@@ -59,3 +59,8 @@ Dance. An Objectless Composition, Alexander Rodchenko, 1915.
 ![](constructivism/1915-portrait-of-a-philosopher--lyubov-popova.jpg)
 
 Portrait of a Philosopher, Lyubov Popova, 1915.
+
+
+![](constructivism/1929-cover-of-avantgarde--vasyl-yermylov.jpg)
+
+Cover of "Avantgarde", Vasyl Yermylov, 1929.
