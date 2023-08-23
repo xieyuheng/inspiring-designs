@@ -11,6 +11,11 @@
 Juni-Festwochen Zürich, Josef Müller-Brockmann, 1957.
 
 
+![](swiss-design/1960-der-film--josef-müller-brockmann.jpg)
+
+Der Film, Josef Müller-Brockmann, 1960.
+
+
 ![](swiss-design/1959-alte-und-neue-formen-in-japan--gewerbemuseum-basel.jpg)
 
 Alte und neue Formen in Japan, Gewerbemuseum Basel, 1959.
