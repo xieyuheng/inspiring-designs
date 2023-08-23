@@ -44,3 +44,8 @@ Izvestiia ASNOVA, no. 1, El Lissitzky, 1926.
 ![](constructivism/2012-deep-cross--willi-sandforth.jpg)
 
 Deep Cross, Willi Sandforth, 2012.
+
+
+![](constructivism/1994-casarini--willi-sandforth.jpg)
+
+Casarini, Willi Sandforth, 1994.
