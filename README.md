@@ -16,6 +16,11 @@ Juni-Festwochen Zürich, Josef Müller-Brockmann, 1957.
 Alte und neue Formen in Japan, Gewerbemuseum Basel, 1959.
 
 
+![](swiss-design/1969-billboard-design-for-event-in-st-gallen--robert-geisser.jpg)
+
+Billboard design by Robert Geisser for event in St. Gallen, 1969
+
+
 ![](swiss-design/1959-kunsthalle-basel-gubler-zurkinden--armin-hofmann.jpg)
 
 Kunsthalle Basel Gubler Zurkinden, Armin Hofmann, 1959.
