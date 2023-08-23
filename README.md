@@ -29,3 +29,7 @@ Kunsthalle Basel Gubler Zurkinden, Armin Hofmann, 1959.
 
 ![](constructivism/1919-beat-the-whites-with-the-red-wedge--el-lissitzky.jpg)
 Beat the Whites with the Red Wedge, El Lissitzky, 1919.
+
+
+![](constructivism/1922-the-cover-of-konstruktivizm--aleksei-gan.jpg)
+The cover of Konstruktivizm, Aleksei Gan, 1922.
