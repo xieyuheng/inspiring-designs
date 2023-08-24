@@ -1,5 +1,14 @@
 # Inspiring Designs
 
+## Bauhaus
+
+[ [Wikipedia](https://en.wikipedia.org/wiki/Bauhaus) ]
+
+
+![](bauhaus/1925-mechanical-stage-design--joost-schmidt.jpg)
+
+Mechanical Stage Design by Joost Schmidt, 1925
+
 
 ## Swiss Design
 
