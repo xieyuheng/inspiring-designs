@@ -20,6 +20,11 @@ Mechanical Stage Design by Joost Schmidt, 1925
 Juni-Festwochen Zürich, Josef Müller-Brockmann, 1957.
 
 
+![](swiss-design/1955-beethoven--josef-muller-brockmann.jpg)
+
+Beethoven, Josef Müller-Brockmann, 1955.
+
+
 ![](swiss-design/1960-der-film--josef-müller-brockmann.jpg)
 
 Der Film, Josef Müller-Brockmann, 1960.
