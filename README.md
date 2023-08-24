@@ -40,6 +40,17 @@ Billboard design by Robert Geisser for event in St. Gallen, 1969
 Kunsthalle Basel Gubler Zurkinden, Armin Hofmann, 1959.
 
 
+## Otl Aicher
+
+[ [Wikipedia](https://en.wikipedia.org/wiki/Otl_Aicher) ]
+
+
+![](otl-aicher/1972-munich-olympics-poster--otl-aicher.jpg)
+![](otl-aicher/1972-munich-olympics-colors--otl-aicher.jpg)
+
+Munich Olympics, Otl Aicher, 1972.
+
+
 ## Constructivism
 
 [ [Wikipedia](https://en.wikipedia.org/wiki/Constructivism_(art)) ]
